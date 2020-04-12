@@ -2,4 +2,3 @@
 if you have any problem, please contact me.
 ## Contact info:
 ### qq:569706408
-### WeChat: gy639157781
